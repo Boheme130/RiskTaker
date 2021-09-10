@@ -1,5 +1,7 @@
 ## Risk Taker
 [回到主页](https://boheme130.github.io/Fiction.git.io/)
+
+![avatar](https://media.newyorker.com/photos/5fd25e2b164b9b03a6dbcb45/master/pass/201221_r37581.jpg)
 <br>
 <br>
 
